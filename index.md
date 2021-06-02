@@ -1,3 +1,19 @@
+TV556(2020/12/24)
+docdocc.github.io/doc/
+github.com/docdocc/doc/edit/gh-pages/index.md
+
+TV566(2020/12/24)
+docdocc.github.io/txt/
+github.com/docdocc/txt/edit/gh-pages/index.md
+git.io/tv566
+https://docdocc.github.io/txt/
+
+f.chemia9217@gmail.com
+G2chf9cda97
+https://github.com/docdocc/doc/edit/gh-pages/index.md
+
+d.acci.m
+
 <p>2020/6/2
 <p>• 建议用谷歌或火狐官方浏览器访问。
 <p>◎ • 视 频： 
@@ -5,7 +21,7 @@
 <a href="http://pup.hdfmradio.com/" target="_blank">网址二</a> 　 
 <a href="http://psl.hdfmradio.com/b.html" target="_blank">网址三</a>
 <a href="https://yadi.sk/d/d0sUeAOpal3njw" target="_blank">　• 云下载 </a></p>
-<p>◆ new! 分 享 网 址（* 请 收 藏）：• https://a.itpc.ga/</p>
+<p>◆ new! 分 享 网 址（* 请 收 藏）：• https://e.itpc.ga/</p>
 
 <p>◎ • 小 站：  
 <a href="http://pws.hdfmradio.com/f.html" target="_blank">网址一</a> 　 
