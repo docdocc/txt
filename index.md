@@ -5,7 +5,7 @@
 <a href="http://pah.hdfmradio.com/" target="_blank">网址一</a> 　 
 <a href="http://pch.hdfmradio.com/" target="_blank">网址二</a> 　 
 <a href="http://pth.hdfmradio.com/b.html" target="_blank">网址三</a>
-<p>◆ new! 分 享 网 址（  b.teny.ga 请 收 藏）：d.teny.ga</p>
+<p>◆ new! 分 享 网 址（  c.teny.ga 请 收 藏）：d.teny.ga</p>
 
 <p>◎ • 小 站：  
 <a href="http://pah.hdfmradio.com/f.html" target="_blank">网址一</a> 　 
