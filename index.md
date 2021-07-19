@@ -5,7 +5,7 @@
 <a href="http://pca.hdfmradio.com/" target="_blank">网址一</a> 　 
 <a href="http://paa.hdfmradio.com/" target="_blank">网址二</a> 　 
 <a href="http://pba.hdfmradio.com/b.html" target="_blank">网址三</a>
-<a href="https://yadi.sk/d/d0sUeAOpal3njw" target="_blank">　• 云下载 </a></p>
+<a href="https://disk.yandex.ru/d/wIUK0uxc3Gk4Ng" target="_blank">　• 云下载 </a></p>
 <p>◆ new! 分 享 网 址（ d.spps.shop  请 收 藏）</p>
 
 <p>◎ • 小 站：  
